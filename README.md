@@ -1,2 +1,1 @@
--  Pronouns: she/they
--  contact me at Mouldyair101@outlook.com
+hi :3
